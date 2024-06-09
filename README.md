@@ -1,2 +1,0 @@
-# uzman-sistem
- 
